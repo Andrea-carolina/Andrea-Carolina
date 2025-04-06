@@ -4,6 +4,6 @@ I am a statistics student who likes to learn new things, especially technologies
 
 I currently live in **[medellin, Antioquia]
 <br />
-I also love learning all about music
+And I also love learning all about music
 <br />
 <br />
